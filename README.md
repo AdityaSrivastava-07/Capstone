@@ -1,7 +1,0 @@
-# Capstone
-# CHIMERA
-# CHIMERA
-# CHIMERA
-# CHIMERA
-# CHIMERA
-# CHIMERA
